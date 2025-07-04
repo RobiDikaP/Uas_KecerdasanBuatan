@@ -1,1 +1,0 @@
-# Uas_KecerdasanBuatan
